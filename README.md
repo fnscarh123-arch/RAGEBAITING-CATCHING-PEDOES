@@ -1,0 +1,2 @@
+# RAGEBAITING-CATCHING-PEDOES
+Join our discord
